@@ -1,1 +1,2 @@
-All things are difficult before they are easy.
+
+'放心!我不知道你們真是反清義士!但到了這個田地，我沒辦法不表露我的真正身分。其實我就是射鵰英雄的傳人，東方不敗的師父，西方失敗!'
